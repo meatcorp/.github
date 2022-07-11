@@ -1,5 +1,5 @@
 Private repositories of [@meatbagMB](https://github.com/sponsors/meatbagMB)\
-Become a monthly sponsor and unlock all my private projects\
+Become a monthly sponsor and unlock all of my private projects\
 https://github.com/sponsors/meatbagMB
 
 # projects
